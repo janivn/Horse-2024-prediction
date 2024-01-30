@@ -2,7 +2,7 @@
 
 #### Horse
 
-https://cdn.i-scmp.com/sites/default/files/d8/images/canvas/2024/01/11/bb183531-c16f-4eaf-86a6-181b34189bfc_ba7066a9.jpg
+  ![img](https://cdn.i-scmp.com/sites/default/files/d8/images/canvas/2024/01/11/bb183531-c16f-4eaf-86a6-181b34189bfc_ba7066a9.jpg)
 
   - _**Lucky numbers:**_ 3, 8; 
 
