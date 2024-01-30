@@ -8,7 +8,7 @@
 
   - _**Lucky colour:**_ light green; 
 
-  - _**Lucky element:**_emerald
+  - _**Lucky element:**_ emerald
 
   This will be a good year for Horses to expand their horizons, so they should consider attending seminars or furthering their education.
 
