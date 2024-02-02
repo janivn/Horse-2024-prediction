@@ -1,4 +1,4 @@
-# your_element-2024-predictions
+# Horse-2024-predictions
 
 #### Horse
 
